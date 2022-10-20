@@ -12,6 +12,7 @@ Je souhaite créer mon propre style d’art grâce aux techniques apprises dans 
 
 ### Emplois qui vous intéressent
 Designeur graphique: Ca consiste à utiliser une composition visuelle  pour exprimer une idée ou un message à l’aide de la typographie, des images, des couleurs et des formes.l'animation est un type de graphisme qui est en mouvement
+
 Monteur vidéo: Il est chargé de trier et sélectionner des rushes de tournage et de donner rythme et une cohérence a la production audiovisuelle. Il est responsable du tri et du découpage afin qu'il puisse donner vie a une histoire. Il est aussi responsable de l'utilisation de plusieurs effet spcaiux sonores ou visuelles.
 ### Identification
 J'ai choisi ce lien parce que je suis passionné par la création montage vidéo. Productions arborescence n'est pas seulement une compagnie de création de film mais aussi différents projets créatifs divers qui couvrent plusieurs aspects du domaine du multimédia(production de vidéos, animation graphique post-production). Grâce à cette compagnie je pourrais mettre mon talent et ma passion à profit. je m'identifie aussi à avicii car c'est un idéaliste et romantique comme moi. Ses productions musicales le pruvent
