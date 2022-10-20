@@ -7,4 +7,4 @@
 
 4 Quels sont vos stratégies pour crééer une bande-annonce d'un jeu attirante pour amener les consommateurs a etre accroché a un jeu?
 
-5 Quels sont les stratégies utilisées pour crééer une histoire dans un jeu vidéo qui attire le publqiue et qui nous garde en haleine?
+5 Quels sont les stratégies utilisées pour crééer une histoire dans un jeu vidéo qui attire le publique et qui nous garde en haleine?
